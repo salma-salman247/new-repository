@@ -1,1 +1,1 @@
-# new-repository
+# Sally's Treats
